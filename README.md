@@ -1,1 +1,1 @@
-# course-guide-stanislav
+# course-guide-stanislav.
